@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lboyz
 - 👀 I’m interested in cars
-- 🌱 I’m currently learning Telkom University
+- 🌱 I’m currently learning at Telkom University
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me, u can follow my instagram @justflyy._
 
